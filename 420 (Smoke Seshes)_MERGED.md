@@ -1,15 +1,3 @@
-# Season 12
-
-# Season 12
-[First Time Trying Moonshine (Story Time) (Smoke Sesh S12 #1)](https://youtu.be/Bdx3L0IaECY)
-
-[A Beautiful Morning with Shrooms (Full Trip) (Smoke Sesh S12 #2)](https://youtu.be/u_0z__lcZNA)
-
-[First Time Trying Moon Rocks (Story Time) (Smoke Sesh S12 #3)](https://youtu.be/zF29Ne1l178)
-
-[So the thing about 11-Hydroxy Carts... (Smoke Sesh S12 #4)](https://youtu.be/DcyTmqeinIU)
-
-
 ### Season 1
 
 # Season 1
@@ -193,5 +181,17 @@
 
 [Pure Mitragyna (Kratom) Extract Capsules, with Cannabis (Smoke Sesh S9 #8)](https://youtu.be/WUSyB1O_6wQ) 
 
+# Season 12
+
+# Season 12
+[First Time Trying Moonshine (Story Time) (Smoke Sesh S12 #1)](https://youtu.be/Bdx3L0IaECY)
+
+[A Beautiful Morning with Shrooms (Full Trip) (Smoke Sesh S12 #2)](https://youtu.be/u_0z__lcZNA)
+
+[First Time Trying Moon Rocks (Story Time) (Smoke Sesh S12 #3)](https://youtu.be/zF29Ne1l178)
+
+[So the thing about 11-Hydroxy Carts... (Smoke Sesh S12 #4)](https://youtu.be/DcyTmqeinIU)
+
 [Understanding Cannabis Trichomes (Smoke Sesh S9 #9)](https://youtu.be/lQNaCkVjlq0)
+
 
